@@ -1,5 +1,5 @@
-# 💫 About Me:
-I am a  BCA Student🧑‍💻<br>I am Graduating🎓<br>🚀Learner and coder💻
+#  😊About Me!
+Hi There 👋I am Santhosh Gowda🧑‍💻<br>I am Graduating🎓<br>🚀Learner and coder💻
 
 
 ## 🌐 Socials:
